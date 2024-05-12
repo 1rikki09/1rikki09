@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @1rikki09
+- 👀 I’m interested in coding,games
+- 🌱 I’m currently learning python
+- 😄 Pronouns: he/him/rikki
